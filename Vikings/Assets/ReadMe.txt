@@ -1,0 +1,1 @@
+1.Make notes here about basics of coidng and whaatever term is taught , helpful for interviews
